@@ -1,4 +1,4 @@
-Hi, I’m Tiago 👋
+Hi. Name's Tiago 👋
 
 I just made this account for personal projects but if you can read this.. well, my projects aren't that personal anymore 👀
 
